@@ -1,2 +1,0 @@
-# LockheedMartinPage
-fan page 
